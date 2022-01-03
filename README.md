@@ -1,1 +1,1 @@
-# Rewards.github.io
+# Rewards
